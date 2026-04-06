@@ -1,0 +1,2 @@
+# ZAMIN
+HI 👋 I'm ZAMIN
